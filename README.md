@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @meepqapi
-- 🌱 I’m currently learning how to practice using the GitHub Flow
+- 🌱 I’m currently a cybersecurity student who just getting started in my computer science journey. I am very excited to see where it takes me!
